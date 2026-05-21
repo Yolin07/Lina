@@ -9,11 +9,16 @@
 -sleeping
 -cooking
 
-
 # Goals 
 - achieve my dreams in life
 - finish studying
 - get a stable job 
+- become a IT experts
+
+# Learning
+- Programming 
+- Coding
+
 
 # Favorite food
 -adobong manok
