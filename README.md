@@ -1,4 +1,4 @@
-# YOLIN
+# ELEJAN YOLINA
 # MY PORTFOLIO 
 # IT students
 
@@ -21,8 +21,8 @@
 
 
 # Favorite food
--adobong manok/
--minudo
+•adobong manok/
+•minudo
 
 # My Self
 -simple,strong,shy,and friendly type of girl  who love to be alone and fighting for her dreams for her family. 
