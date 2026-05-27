@@ -21,11 +21,11 @@
 
 
 # Favorite food
-•adobong manok/
+•adobong manok
 •minudo
 
 # My Self
--simple,strong,shy,and friendly type of girl  who love to be alone and fighting for her dreams for her family. 
+•simple,strong,shy,and friendly type of girl  who love to be alone and fighting for her dreams for her family. 
 
 # kuromi lover
    [Yolin] (https://pin.it/3YdUftfmV)
