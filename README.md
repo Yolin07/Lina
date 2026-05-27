@@ -1,6 +1,6 @@
 # ELEJAN YOLINA
 # MY PORTFOLIO 
-# IT students
+# IT STUDENTS
 
  Hello I'm Yolina Elejan 1st year IT students willing to learn more things and appreciate a little things that I have learn because this little things can help me to improve my skills and ability. I believe  that know matter what I will try my best to achieve my dream to become a professional IT developer someday.
 
